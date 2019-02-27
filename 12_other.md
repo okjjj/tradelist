@@ -22,8 +22,8 @@
 
 # 12" compilations
 
-| ARTIST | ALBUM | LABEL | NOTES |
-| ------ | ------ | ------ | ------ |
+| ARTIST | LABEL | NOTES |
+| ------ | ------ | ------ |
 | all the president's men | old glory | (julia, maximillion colby, fingerprint, policy of 3, assfactor 4, hoover, ordination of aaron, etc) |
 | direction | polyvinyl | last pressing ever: 497/500. comp (braid, rainer maria, gila bander, etc) |
 | food not bombs compilation | anima | (anomie, palatka, kathode, constantine sankathi, etc) |
