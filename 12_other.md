@@ -1,24 +1,24 @@
 # 12" splits
 
-| ARTIST | ALBUM | LABEL | NOTES |
-| ------ | ------ | ------ | ------ |
-| ampere/sinaloa | ebullition | |
-| das oath/ampere | clean plate | |
-| damezumari/fire team charlie | magister ludi/roklok/stg | |
-| dawn treader/d'amore | metaphysics | |
+| ARTIST |  LABEL | NOTES |
+| ------ | ------ | ------ |
+| ampere/sinaloa | ebullition |
+| das oath/ampere | clean plate |
+| damezumari/fire team charlie | magister ludi/roklok/stg |
+| dawn treader/d'amore | metaphysics |
 | dying/less life | hydrogen man/endless disaster/cricket cemetery/pure heart | white,  09/300 |
 | fast plant/in danger of dead | dead tank | first press, clear yellow. (??/50) |
 | i hate myself/twelve hour turn | no idea | white, 4th pressing  |
 | mass movement of the moth + the catalyst presents... two thousand and six, six, six | perpetual motion machine/electric human project | first press, grey (??/500)  |
 | night falls: the one am radio & the wind-up bird | paramnesia | translucent blue with a smokey white center (??/250). preorder with screenprint (85/182). |
-| nuclear family/impractical cockpit | friends and relatives  | |
-| reactionary 3/true north | obscurist press | |
-| the people listening, wonder/dodewaard | mashnote/grab the stars/adiago830 | |
+| nuclear family/impractical cockpit | friends and relatives  |
+| reactionary 3/true north | obscurist press |
+| the people listening, wonder/dodewaard | mashnote/grab the stars/adiago830 |
 | the south/hypatia | dead tank/square of opposition | pink with orange/black sleeve, (??/280) |
-| thurston moore/graham moore | nihilist  | |
+| thurston moore/graham moore | nihilist  |
 | three studies for a crucifixion/coleman | mountain cia | first press (?/1680)  |
-| utarid/am i dead yet/the mock heroic/a fine boat, that coffin | react with protest/nimbus module  | |
-| what's yr damage?/byron house | kick food into your mouth | black lakes/cephia's treat | |
+| utarid/am i dead yet/the mock heroic/a fine boat, that coffin | react with protest/nimbus module  |
+| what's yr damage?/byron house | kick food into your mouth | black lakes/cephia's treat |
 
 # 12" compilations
 
