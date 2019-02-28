@@ -1,0 +1,79 @@
+# 7" split
+| ARTIST |  LABEL | NOTES |
+| ------ | ------ | ------ |
+| 12XU/old growth | purepainsugar/bakery outlet | |
+| 7654 stories/arcadius | prescription records | personalized "last mailorder edition" (16/40) |
+| allegory of the cave/spectres | forever escaping boredom/fordtheriver | grey marble |
+| ampere/daïtro | purepainsugar/clean plate | |
+| ampere/wolves | moganono | |
+| ben grim/the links | blue blue blue | |
+| beneath low flying planes/arse moreia | escucha | clear blue (?/210) |
+| boyracer/que possum | 555 records | non-glow-in-the-dark cover on white edition, ~40/300 |
+| captive bolt/gary francione | dead tank | purple splatter |
+| casiotone for the painfully alone/foot foot | oedipus records | white (??/150)  |
+| catena collapse/sinaloa | narshardaa | |
+| d'amore/towers | delian league/sars/be happy | black (?/300) |
+| dawn treader/fall on deaf years | metaphysics/be happy | first press, (??/500) |
+| days in december/sweater weather | polyvinyl | |
+| defiance, ohio/environmental youth crunch | dead tank  |
+| defiance, ohio/one reason | anti-creative | coke bottle clear, (??/300) |
+| die, emperor! die!/burned out bright | friends forever | burned out bright last show version, (??/200) |
+| ds-13/code 13 | havoc | clear orange |
+| dropdead/look back and laugh | armageddon | clear |
+| eaves/francis brady | wild-zero | first press, (??/500) |
+| gal & lad/justin clifford rhody | friends and relatives | marble  |
+| george w bush/st albans kids | gash  | |
+| hal al shedad/inkwell | lunchbox  | |
+| her breath on glass/sofy major | ifb | first 100 version (tied with ribbon) |
+| i object/f.p.o. | dead tank/to live a lie | red with white splatter |
+| ice nine/gadje | ebullition  | |
+| in vain/council of five nations | the arm | |
+| index for a potential suicide/usurp synapse | witching hour | |
+| indian summer/ordination of aaron | inchworm  | |
+| iscariote/complete | shogun/heroine  | |
+| jasemine/ivich | stonehenge | |
+| jonah/drift | anima | |
+| julia/sunshine | day after | clear green |
+| la quiete/catena collapse | grab the stars/6-60-productions | 2nd press, tour edition (112/150) |
+| la quiete/the apoplexy twist orchestra | heroine | first press, (??/525) |
+| lachance/autokinoton | |blue (??/100) |
+| lanemeyer/emanuel nice | ? Records | clear red |
+| madeline/sawwheel | hill billy stew  | |
+| mary me/hand to mouth | take out the trash  | |
+| mass movement of the moth/polar | discern direction | first press. white (?/330). regular cover. |
+| mass movement of the moth/sing sing prison | pink noise | first press, grey/green splatter. personalized for some dude named 'mark!' |
+| mount eerie/the love of everything | |first press, white (??/1000) |
+| my war/revenge therapy | natural resistance  | |
+| old growth/science of yabra | dead tank | |
+| only for the sake of aching/amalthea | ape must not kill ape/moloch industries | |
+| only for the sake of aching/the third memory | ape must not kill ape/moloch industries | |
+| orchid/the red scare | hand held heart | |
+| para la guerra/renegade youth | self released  | |
+| pete the pianoeater/the pat fortenbaugh one | pat wreck chords | |
+| peter & craig/bezout's identity | metaphysics/the sinister moustache (circle y) | opaque orange |
+| peter & craig/letters in binary | circle y(?) | |
+| pg.99/city of caterpillar | level-plane | black |
+| plot to blow up the eiffel tower/necktie party | can't never could | second press, (??/1000) |
+| post marked stamps: haelah/aspera ad astra | tree | post marked stamp #5  |
+| so many dynamos/bring back the guns | discos mariscos  | |
+| sometimes walking, sometimes running/the insurgent | traffic violation | grey-ish  |
+| step softly, ghost/fall on deaf years | be happy | clear, tour version? |
+| suplex/sputnik | p.o.w  | |
+| the assistant/forstella ford | boxcar  |
+| the death of anna karina/the flying worker | mashnote/life of hate | brown (??/1000) |
+| the get up kids/coalesce | second nature | 8th press |
+| the get up kids/rocket from the crypt | heroes & villains | white |
+| the get up kids/the anniversary | vagrant/heroes & villains | clear blue |
+| the locust/melt banana | gsl  | |
+| the one am radio/jeromes dream | garbage czar | first press, (??/2000) |
+| the one am radio/ted leo/pharmacists | garbage czar |
+| the promise ring/texas is the reason | jade tree  |
+| the spirit of versailles/saqqara | 605 | |
+| they and the children/daniel striped tiger | shock value | clear splatter |
+| toru okada/olive tree | hide and go seek | white, tour edition, 7/150 |
+| twelve hour turn/strikeforce diablo | push pull  | |
+| utarid/sophora | gasping for breath | first press, clear (???/???) |
+| utarid/tiala | parade of spectres | first press, white (??/525) |
+| warm hands/blackheath | war house/on point | green yellow | (1/30)  |
+| what's yr damage?/kodan armada | dead tank | first press (??/500) |
+| YUKhONIC/the j.f.k.'s | cephia's treat | first press (??/300) |

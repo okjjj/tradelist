@@ -1,0 +1,10 @@
+# 7" compilation
+
+| ARTIST |  LABEL | NOTES |
+| ------ | ------ | ------ |
+| an american tragedy | diffusion | benefit compilation for judi bari's case. dead silence, three studies for a crucifixion, still life, watercolour |
+| cramped quarters | cephia's treat | first press (??/300). comp w/ what's yr damage, yukhonic, byron house, en, haves&thirds, hepatitis youth, dead/bird, etc |
+| emo armageddon | react with protest | first press, black (??/1000). |
+| the association of utopian hologram swallowers | polyvinyl | first press , 2x7 |
+| the microwave says to the pacemaker | slave union | 2x7 |
+| what has two thumbs and loves long island punk and hardcore?!?!!? | traffic violation | on the might of princes, jancux, the insurgent, mad cow dizeaze 182, porcelain decay |

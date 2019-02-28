@@ -15,8 +15,10 @@
 | ------ | ------ | ------ |
 | ampere/ringers | no idea | clear red |
 
-__8.375"_____________________
-casiotone for the painfully alone/concern | people in a position to know | split 8.375", square, one sided, marble brown |
+# 8.375"
+| ARTIST | ALBUM | LABEL | NOTES |
+| ------ | ------ | ------ | ------ |
+| casiotone for the painfully alone/concern | people in a position to know | split 8.375", square, one sided, marble brown |
 
 # 9"
 | ARTIST |  LABEL | NOTES |
